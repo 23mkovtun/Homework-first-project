@@ -12,4 +12,5 @@
 
 Люблю солнце, ветер с моря, кофе, энергичную музыку и танцевать.
 
-![Момент](https://github.com/23mkovtun/Homework-first-project/blob/main/2FD1628C-EFD5-4078-BF6B-118C66E8922D%20(1).jpg?raw=true)
+![Момент](https://drive.google.com/file/d/1k4CM_qLoEJASQkgGXKCXIAIXOJX_124R/view?usp=share_link)
+
