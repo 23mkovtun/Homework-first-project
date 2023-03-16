@@ -1,4 +1,4 @@
-# Hello, world!
+# :full_moon_with_face: Hello, world!
 
 ## Кто я?
 
