@@ -12,4 +12,4 @@
 
 Люблю солнце, ветер с моря, кофе, энергичную музыку и танцевать.
 
-![Момент](2FD1628C-EFD5-4078-BF6B-118C66E8922D (1).jpeg)
+![Момент](https://drive.google.com/file/d/1aMjVmPdT1y2vPsOALy8-C2c2_7Pz2Rqf/view?usp=sharing)
